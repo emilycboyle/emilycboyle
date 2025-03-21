@@ -1,3 +1,3 @@
 
-I'm Emily and I'm a ✨ senior product analyst ✨ based in Berlin.
+I'm Emily and I'm a ✨ senior analyst ✨ based in Berlin.
 
